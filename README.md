@@ -10,6 +10,6 @@ What i had to 2015 year:
 
 Then in 2015 year i change [Gardena Pop-up Oscillating Sprinkler R 140 (1537-29)](https://www.gardena.com/int/products/watering/sprinklersystem/pop-up-oscillating-sprinkler-r-140/900933201/) to [Gardena Pop-Up Oscillating Sprinkler OS 140 (8220-29)](https://www.gardena.com/int/products/watering/sprinklersystem/pop-up-oscillating-sprinkler-os-140/967170901/).
 
-Yes, I didn’t think that my pressure would be enough! Now I had to close one tap every time.
+Yes, I didn’t think that my pressure would be not enough! Now I had to close one tap every time.
 
 Now it is time to change everything :)
