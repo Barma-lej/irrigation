@@ -13,3 +13,7 @@ Then in 2015 year i change [Gardena Pop-up Oscillating Sprinkler R 140 (1537-29)
 Yes, I didn’t think that my pressure would be not enough! Now I had to close one tap every time.
 
 Now it is time to change everything :)
+
+In 2019, I drilled a well and decided to rebuild the entire system.
+
+![New plan](images/Gardenplan2019-1.png)
